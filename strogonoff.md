@@ -14,7 +14,4 @@
 ### Modo de preparo
 
 1. Em uma panela coloque tudo e refogue
-2. Coloque tudo e quando o frango estiver bem branquinho, voce 
-
-- [x] Terminar de fazer assuntos MM
-- [ ] 
+2. Coloque tudo e quando o frango estiver bem branquinho, voce coloca molho de tomate e creme de leite, mexe até ficar pronto e comer!!
